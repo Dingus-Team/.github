@@ -10,4 +10,4 @@ uh... I decided to make my own! Well without any budget at all, the project star
 ipod but new
 ### sandingus
 sandisk + dingus = sandingus
-we make sd, cd and special one
+we make sd, cf and special one
